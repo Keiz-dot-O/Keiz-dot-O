@@ -1,4 +1,4 @@
-Keiz.O is begginer now.
+BEGINNER
 
 - 👋 Hi, I’m @Keiz-dot-O
 - 👀 I’m interested in ...
